@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @shafatudou
+- 👀 I’m interested in sleeping
+- 🌱 I’m currently learning Business Administration at CCU
+- 📫 How to reach me? Reach me via shafatudou@alumn.ccu.edu.tw
